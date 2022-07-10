@@ -111,7 +111,7 @@ Nói chung là đừng nghĩ tới việc mở được tài liệu luôn cho kh
 </h3>
 
 <p align="center">
-    <img src="./photo/DeThamKhaoD18.jpg" width="640" />
+    <img src="./photo/deThamKhaoD18.jpg" width="640" />
 </p>
 <h3 align="center">
 

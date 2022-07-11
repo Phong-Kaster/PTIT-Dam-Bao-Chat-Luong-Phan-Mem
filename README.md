@@ -44,7 +44,7 @@ Cuối kì: 70% - không được mở tài liệu
 
 Môn này chiếm 3 tín chỉ -> học 11 buổi tất cả.
 
-Học từ 28-12-2021 đến ngày 03-04-2021 - đó là đổi với mình nha 😋
+Học từ 28-12-2021 đến ngày 03-04-2022 - đó là đổi với mình nha 😋
 
 Các bạn có để tiêu đề hem ? `Môn học "khó nhất"` bạn sẽ học ở năm cuối đại học do thầy Nguyễn Anh Hào giảng dạy. 
 
